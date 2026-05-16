@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new bitmex trading bot Module | latency-optimization + perpetual-trading, the #1 bitmex trading bot. Includes latency-optimization and perpetual-trading
 
 
 
